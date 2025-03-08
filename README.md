@@ -1,1 +1,1 @@
-hello, everything on the internet is fake, only more fake stuff being stuff real life. i have nothing to share, as you / me / "identity" are all fake. i call for death to signaling, death to deception of thy self and of others, death to the elephant in the brain. bring forth physical / information / capital truth, bring forth coldness, bring forth god
+hello, question your motives, do not deceive others, do not deceive yourself
